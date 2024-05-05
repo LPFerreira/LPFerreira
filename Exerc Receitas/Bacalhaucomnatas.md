@@ -26,6 +26,6 @@ sal
  Coloque num tabuleiro uma camada de batatas, o bacalhau com a cebolada e novamente batatas.
  Entretanto, junte as natas com o bechamel e misture as duas gemas de ovo. Cubra o tabuleiro com esta mistura e leve ao forno a gratinar.
 
- <img src="bacalhau-com-natas.webp">
+ <img src="bacalhau-com-natas.webp"> 
 
  

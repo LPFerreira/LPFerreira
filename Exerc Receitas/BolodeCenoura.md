@@ -1,5 +1,3 @@
-Bolo de Cenoura
-
 Massa
 
 óleo
@@ -53,6 +51,6 @@ Leve a mistura ao fogo e continue misturando até obter uma consistência cremos
 Uma deliciosa receita de bolo de cenoura de liquidificador
 
 
-<img src="imagembolo.jpg" alt="340" height="340">
+<img src="imagembolo.jpg" alt="440" height="640">
 
 
