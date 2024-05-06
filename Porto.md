@@ -1,0 +1,12 @@
+<img src="Portoimagem.webp">
+
+<strong>Porto</strong>
+
+O Porto é a segunda maior cidade de Portugal , com quase dois milhões de habitantes. A cidade do Porto tornou-se conhecida mundialmente pelo seu vinho do Porto. O Porto está localizado no noroeste de Portugal, na fronteira com o Oceano Atlântico. O rio Douro divide o Porto numa parte norte e numa parte sul, o que também explica as muitas pontes marcantes que aí encontrará, das quais a Ponte Dom Luís I é a mais famosa ponte em arco. O centro histórico do Porto é Património Mundial da UNESCO desde 1996 pelo seu valor cultural. Embora possa ser bastante seco em Portugal durante o verão, encontrará alguns parques no Porto onde poderá relaxar à sombra. Além disso, não se pode visitar o Porto sem observar os edifícios coloridos e as belas igrejas da cidade. Porto Portugal não é apenas um destino popular para um passeio pela cidade, mas também é visitado por turistas que tiram férias mais longas para conhecer os pontos turísticos da região do Porto.
+
+Devido à compactação da cidade do Porto, é possível fazer quase tudo a pé. Essa é uma boa notícia para os citytrippers que gostam de absorver cultura e explorar a cidade. Principalmente as ruas estreitas com paralelepípedos antigos do colorido bairro da Ribeira são as preferidas para passear. Explore os pequenos cafés e outras lojas da cidade. Se gosta de mercados não pode deixar de visitar o Mercado do Bolhão. Caminhando pelos bairros do Porto Portugal você também ficará surpreso com a arte de rua exposta.
+O verdadeiro amante de Portugal deveria ter experimentado pelo menos uma vez na vida um verdadeiro fado português. Normalmente estas atividades são combinadas com jantar e/ou prova de vinhos. A não perder: suba à Torre dos Clérigos para um dos melhores miradouros do Porto e visite a estação ferroviária de São Bento com a sua bela arquitectura. Além disso, o Porto é uma cidade com muitas igrejas revestidas de Azulejos, os típicos azulejos azuis. Não se esqueça de entrar nas igrejas para ver todo o esplendor também. O que não deve perder nas atrações do Porto é a Ponte Dom Luís I, visite de preferência a ponte em arco numa hora tranquila do dia (ao nascer ou pôr do sol). Visite uma das muitas casas portuárias do outro lado do rio para uma degustação de vinhos do Porto de marcas conhecidas como Sandeman, Graham's e Calem. Oficialmente esta zona não faz parte da cidade do Porto, mas chama-se Vila Nova de Gaia.
+
+
+
+
